@@ -3,6 +3,7 @@ maxdeviant’s life
 
 - 24/08/1994 Born
 - 08/2008-06/2010 Kunming International Academy
+- 29/04/2009 First Tweet
 - 10/2009 Acted in <em>Arsenic and Old Lace</em>
 - 21/07/2010 Steam
 - 08/2010-06/2012 West Chester East High School
